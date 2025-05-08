@@ -1,2 +1,0 @@
-# App Game Sensei SENA
-
